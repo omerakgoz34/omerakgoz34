@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @omerakgoz34
+- Ömer Akgöz | Turkish 🇹🇷 | Introvert INTP+INFP | Software, Art, Science.
