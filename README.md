@@ -1,4 +1,1 @@
-- Ömer Akgöz
-- Turkish 🇹🇷
-- Introvert INTP+INFP
-- Software, Art, Science.
+nothing.
